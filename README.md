@@ -1,1 +1,1 @@
-![MSDNAA](images/FVke4w5XsAwBQLI.jpg)
+![MSDNAA](FVke4w5XsAwBQLI.jpg)
